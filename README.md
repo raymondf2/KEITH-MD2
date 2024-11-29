@@ -1,5 +1,5 @@
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<h1 align="center"> 𝐊𝐄𝐈𝐓𝐇-𝐌𝐃 </h1>
+<a><img src='https://i.ibb.co/pZsD68b/file-3340.jpg'/></a>
+<h1 align="center"> RAY-MD </h1>
 
  
 <h1 align="center"> Survival is winning frankline everything else is bullshit,fairy tales spun by people afraid to look life in the eye,do whatever it takes kid ,,survive 😏🙏
@@ -8,7 +8,7 @@
 
 
   <a href="https://ibb.co/N6NMDtn"><img src="https://i.imgur.com/XlQIFIF.jpeg" alt="01" border="0" /></a>                     
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://i.ibb.co/pZsD68b/file-3340.jpg'/></a>
  
 
 <details>
