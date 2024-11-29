@@ -6,11 +6,6 @@
 </h1>
 
 
-
-  <a href="https://ibb.co/N6NMDtn"><img src="https://i.imgur.com/XlQIFIF.jpeg" alt="01" border="0" /></a>                     
-<a><img src='https://i.ibb.co/pZsD68b/file-3340.jpg'/></a>
- 
-
 <details>
 <summary>𝐕𝐈𝐄𝐖 𝐋𝐀𝐓𝐄𝐒𝐓 𝐁𝐎𝐓 𝐔𝐏𝐃𝐀𝐓𝐄𝐒 𝐇𝐄𝐑𝐄👇</summary>
   
